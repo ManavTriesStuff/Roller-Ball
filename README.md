@@ -1,2 +1,7 @@
 # Roller-Ball
-outdated!
+
+------------------------
+
+OUTDATED PROJECT
+
+------------------------
